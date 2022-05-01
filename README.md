@@ -6,6 +6,7 @@
 <hr/>
 :sparkles: :tada:
 <br>
-1. 21801047_이산하pr 연습!!     
+1. 21801047_이산하pr 연습!!
+<br>     
 :sparkles: :tada:
 <hr/>
